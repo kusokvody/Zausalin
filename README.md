@@ -5,4 +5,4 @@
 ## [ПП.04](https://disk.yandex.ru/d/_qt2UNbHxCmfzg)
 ## [УП.02](https://disk.yandex.ru/d/124r5wbEebJpvA)
 ## [УП.04](https://disk.yandex.ru/d/EMeGMV30GfkQEQ)
-## [Спец курс](https://disk.yandex.ru/d/68NK29c8q298dQ)
+## [Спец курс](https://disk.yandex.ru/d/7qKoT8vAdnA9IA)
